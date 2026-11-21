@@ -1,30 +1,40 @@
-# Uruguai – Roteiro sex-dom, julho/2027
+# Road trip São Paulo → Uruguai – 09 a 16 de julho de 2027
 
-**Premissas (ajuste se estiverem erradas):** você escreveu "julho 202" e "retornando na sexta" – assumi julho de 2027, ida na sexta e volta no domingo à noite (2 noites). Sugestão de datas: **9 a 11 de julho** ou **23 a 25** – evita o feriado de 18/jul (domingo), quando muito comércio fecha. Base em **Montevidéu**, com bate-volta a Colonia del Sacramento.
-**Clima:** julho é o mês mais frio: 7–15 °C, vento e umidade do Rio da Prata. Leve casaco pesado, gorro e luvas. Baixa temporada = hotel e voo mais baratos.
+**Premissas:** saída sexta 09/jul de São Paulo, de carro, entrando pelo **Chuí**. Distância ~2.000–2.200 km por trecho (fontes divergem). Fazemos 2 dias de estrada para ir e 2 para voltar, com **3 dias inteiros no Uruguai**. Sexta 16 fica como folga (ver abaixo). Julho é o mês mais frio: 7–15 °C no Uruguai, vento forte. Feriado em 18/jul não pega a viagem.
 
-## Sexta – Chegada e Ciudad Vieja
-- Manhã: chegada, check-in (ou guarde a mala), trocar dinheiro pouco (cartão é aceito quase em todo lugar).
-- Tarde: Plaza Independencia, Puerta de la Ciudadela, Peatonal Sarandí, Teatro Solís (visita guiada).
-- Fim do dia: Mercado del Puerto – parrilla (asado, chivito) e vinho Tannat.
-- Noite: tango/música ao vivo (ex.: Fun Fun) ou café na Ciudad Vieja.
+## Dia 1 – Sex 09/jul: SP → Torres/Osório (RS) (~1.000 km, 12–13h)
+- Saída às 5h. Régis Bittencourt (BR-116) → BR-101 pelo litoral. Pare para abastecer e almoçar a cada ~300 km; evite dirigir à noite no litoral sul (neblina e chuva).
+- Durma em Torres ou Osório. **Jantar leve e cama cedo.**
 
-## Sábado – Colonia del Sacramento (bate-volta, ~2h30 de ônibus)
-- Saída cedo de Tres Cruces (COT/CUT/Turismo Oriental). Barrio Histórico (Patrimônio UNESCO), Calle de los Suspiros, farol, pôr do sol na Rambla.
-- Almoço no centro histórico; volta no fim da tarde. Jantar leve em Montevidéu.
-- *Alternativa no inverno/chuva:* trocar por vinícola (Bouza ou Pizzorno, ~30–40 min de Montevidéu) com degustação.
+## Dia 2 – Sáb 10/jul: Torres → Chuí → Montevidéu (~1.050 km, 12–13h)
+- BR-101/BR-290 → BR-471 até o Chuí. Chegue à fronteira antes das 15h para passar a aduana com folga (documentos abaixo).
+- Uruguai: Rota 9 e Interbalnearia até Montevidéu (~330 km). Chegada à noite: check-in e descanso. Se a estrada atrasar, durma em Punta del Este/Chuy e entre em Montevidéu no domingo cedo.
 
-## Domingo – Rambla, feira e despedida
-- Manhã: Feira de Tristán Narvaja (só aos domingos) – antiguidades, mate, comida de rua.
-- Meio-dia: Rambla de Montevidéu até Pocitos; almoço e café (Pablo Ferrando é opção de café).
-- Tarde: compras (alfajor, doce de leite, mate), Mercado Agrícola.
-- Noite: traslado ao aeroporto e voo de volta.
+## Dia 3 – Dom 11/jul: Ciudad Vieja e Feira de Tristán Narvaja
+- Manhã: **Feira de Tristán Narvaja** (só aos domingos). Plaza Independencia, Puerta de la Ciudadela, Peatonal Sarandí.
+- Tarde: Teatro Solís e **parrilla no Mercado del Puerto**. Noite: música/tango.
+
+## Dia 4 – Seg 12/jul: Colonia del Sacramento (~2h30 de carro)
+- Barrio Histórico (UNESCO), Calle de los Suspiros, farol, pôr do sol na Rambla. Almoço no centro; volta no fim da tarde. Segunda: alguns museus fecham, o passeio a pé não.
+
+## Dia 5 – Ter 13/jul: Vinícola e Rambla
+- Manhã: bodega perto de Montevidéu (Bouza ou Pizzorno, ~30–40 min) com degustação de Tannat. Tarde: Rambla até Pocitos, compras (alfajor, doce de leite, mate).
+
+## Dia 6 – Qua 14/jul: Montevidéu → Torres/Osório
+- Saída às 6h, aduana no Chuí no início da tarde e dormir na região de Torres/Osório.
+
+## Dia 7 – Qui 15/jul: Torres → São Paulo (~1.000 km). Sexta 16 = folga de segurança.
+- Se preferir voltar só na sexta, divida em Florianópolis/Curitiba (menos cansativo).
 
 ## As 3 coisas que você NÃO pode deixar de fazer
-1. **Parrilla no Mercado del Puerto** – asado uruguaio com vinho Tannat, o programa que define Montevidéu.
-2. **Bate-volta a Colonia del Sacramento** – o centro histórico mais bonito do país, ótimo no frio.
-3. **Caminhar a Rambla e a Feira de Tristán Narvaja no domingo** – o jeito de viver como local; mate na mão, vista do rio.
+1. **Parrilla no Mercado del Puerto** com vinho Tannat.
+2. **Colonia del Sacramento** – o centro histórico mais bonito do país.
+3. **Rambla + Feira de Tristán Narvaja no domingo** – o jeito local de viver Montevidéu.
 
-## Antes de comprar
-- Confirme documentos (RG recente ou passaporte, regra do Mercosul), seguro e preços reais de voo/hotel – os valores do orçamento são estimativas de blogs de viagem e comparadores, não cotações.
-- Horários e preços do ônibus: sites da COT, CUT e Turismo Oriental.
+## Documentos para o carro (confirme no consulado/Itamaraty)
+- RG original (confirme a regra de 10 anos de emissão, fontes divergem), **CNH física**, **CRLV** (leve impresso) e **Carta Verde** (seguro Mercosul obrigatório para carro particular; cobre só danos a terceiros, por isso leve também seguro viagem).
+- Carro em nome de outra pessoa: procuração/autorização em cartório com firma reconhecida.
+- Pedágios no Uruguai não aceitam dinheiro: veja a tag Telepeaje.
+
+## Segurança na estrada
+- 4.500 km exigem revisão antes de sair (pneus, freios, óleo). Revezem direção se houver 2 motoristas. Faça pausa a cada 2h.
