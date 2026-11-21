@@ -1,6 +1,6 @@
-# Road trip São Paulo → Uruguai – 09 a 16 de julho de 2027
+# Road trip São Paulo → Uruguai – 09 a 15 de julho de 2027 (7 dias)
 
-**Premissas:** saída sexta 09/jul de São Paulo, de carro, entrando pelo **Chuí**. Distância ~2.000–2.200 km por trecho (fontes divergem). Fazemos 2 dias de estrada para ir e 2 para voltar, com **3 dias inteiros no Uruguai**. Sexta 16 fica como folga (ver abaixo). Julho é o mês mais frio: 7–15 °C no Uruguai, vento forte. Feriado em 18/jul não pega a viagem.
+**Premissas:** saída sexta 09/jul de São Paulo, de carro, entrando pelo **Chuí**. Distância ~2.000–2.200 km por trecho (fontes divergem). Total de **7 dias**: 2 de estrada na ida, **3 dias inteiros no Uruguai (dom, seg, ter)** e 2 de estrada na volta. Julho é o mês mais frio: 7–15 °C no Uruguai, vento forte. Feriado em 18/jul não pega a viagem.
 
 ## Dia 1 – Sex 09/jul: SP → Torres/Osório (RS) (~1.000 km, 12–13h)
 - Saída às 5h. Régis Bittencourt (BR-116) → BR-101 pelo litoral. Pare para abastecer e almoçar a cada ~300 km; evite dirigir à noite no litoral sul (neblina e chuva).
@@ -23,8 +23,8 @@
 ## Dia 6 – Qua 14/jul: Montevidéu → Torres/Osório
 - Saída às 6h, aduana no Chuí no início da tarde e dormir na região de Torres/Osório.
 
-## Dia 7 – Qui 15/jul: Torres → São Paulo (~1.000 km). Sexta 16 = folga de segurança.
-- Se preferir voltar só na sexta, divida em Florianópolis/Curitiba (menos cansativo).
+## Dia 7 – Qui 15/jul: Torres → São Paulo (~1.000 km), chegada à noite.
+- Se quiser menos cansaço, estenda a volta até sexta 16 dormindo em Florianópolis/Curitiba.
 
 ## As 3 coisas que você NÃO pode deixar de fazer
 1. **Parrilla no Mercado del Puerto** com vinho Tannat.
